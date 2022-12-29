@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DamithaKalhara
-- 👀 I’m interested in working in the IT field
+- 👀 I’m currently learning to be a programmer
 - 🌱 I recently completed my B.Sc(Hons) degree frm University of Peradeniya
 - 💞️ I’m looking to collaborate on real life projects
 - 📫 You can reach me through my email iaddkalhara1@gmail.com
