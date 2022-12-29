@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DamithaKalhara
+- 👋 Hi, I’m @IADDKalhara
 - 👀 I’m currently learning to be a programmer
 - 🌱 I recently completed my B.Sc(Hons) degree frm University of Peradeniya
 - 💞️ I’m looking to collaborate on real life projects
